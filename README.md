@@ -1,0 +1,1 @@
+# Grafika_Komputer_072_MIB
